@@ -1,2 +1,2 @@
-# i_am_rick
+# i_am_rich
 
